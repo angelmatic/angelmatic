@@ -1,7 +1,7 @@
 ⠀<div align="center">
 
-![](https://komarev.com/ghpvc/?username=angelmatic&color=85ccac&style=plastic&label=Views&base=6390)
+![](https://komarev.com/ghpvc/?username=angelmatic&color=ff6666&style=plastic&label=Views&base=6390)
 
-![](https://files.catbox.moe/7ay11b.gif)
+![](https://files.catbox.moe/yis64e.gif)
 ##### [Rentry](https://rentry.co/Cazas-Gratiae)ㅤㅤㅤㅤ[Strawpage](https://medangel.straw.page/)
 ##### [Atabook](https://don.atabook.org/)ㅤㅤㅤㅤ[Neospring](https://neospring.org/@p.ai.nter/_app/warning)
