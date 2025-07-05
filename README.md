@@ -6,7 +6,7 @@
 
 ![](https://files.catbox.moe/dydps0.gif)
 ##### [Rentry](https://rentry.co/Cazas-Gratiae)ㅤㅤㅤㅤ[Strawpage](https://sealkit.straw.page/)
-##### [Atabook](https://don.atabook.org/)ㅤㅤㅤㅤ[Neospring](https://neospring.org/@p.ai.nter/_app/warning)
+##### [Atabook](https://don.atabook.org/)
 
  
 ![](https://files.catbox.moe/ck4c3l.png)
